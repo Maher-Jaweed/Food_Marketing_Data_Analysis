@@ -8,9 +8,9 @@
 ### 4. Education - no impact - don't target any group 
 ### 5. Marital Status - doesnt play a big part. Married, Single, Together, spend more money 
 
-### Money Making 
+### Money Making:
 1. Middle Aged People, high earners, with no kids. Target on different platforms with split above.
 
-### New Users to Spend Money 
+### New Users to Spend Money:
 2. Focus on 21-30, 70 and up - who statistically accepted campaigns at a higher rate.
 
