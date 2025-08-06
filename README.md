@@ -2,7 +2,7 @@
 # Overall Findings
 
 
-### 1. Age - 30 - 70 Were spending more money, but less likley to accept campagns. Higher volume here though. 
+### 1. Age - 30 - 70 Were spending more money, but less likley to accept campaigns. Higher volume here though. 
 ### 2. Catalog was more likley to accept campaigns, but in person spend more. Recommend a split between all. 
 ### 3. Focus on people with no kids (or less kids)
 ### 4. Education - no impact - don't target any group 
